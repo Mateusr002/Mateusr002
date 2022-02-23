@@ -9,7 +9,7 @@
 <p align="left">
 </p>
 
-https://66.media.tumblr.com/fcd6197da2e4fbabb7563711bed74e3d/tumblr_px681yjucz1y9u9sko1_500.gifv
+https://i.pinimg.com/videos/thumbnails/originals/39/1f/66/391f66e3f1f8b6ed7d4052fc30bf4c33.0000001.jpg
 
 
 <h3 align="left">Languages and Tools:</h3>
